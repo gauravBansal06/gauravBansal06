@@ -8,6 +8,6 @@ Hands-on engineering leader at **TestMu AI** (formerly LambdaTest), building AI 
 
 🎓 IIT Jammu, President's Gold Medalist
 
-🎨 Off the keyboard, I'm *The Artineer*: Hindustani classical vocalist, shayar and sketch artist ([Instagram](https://www.instagram.com/theartineer_official) · [YouTube](https://www.youtube.com/@TheArtineer))
+🎨 Off the keyboard, I'm *The Artineer*: Hindustani classical vocalist, shayar and sketch artist
 
-[LinkedIn](https://www.linkedin.com/in/gauravbansal213) · [Topmate](https://topmate.io/gauravbansal)
+[LinkedIn](https://www.linkedin.com/in/gauravbansal213) · [Topmate](https://topmate.io/gauravbansal) · [Instagram](https://www.instagram.com/theartineer_official) · [YouTube](https://www.youtube.com/@TheArtineer)
